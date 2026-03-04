@@ -1,5 +1,5 @@
-Profile WIP
+Creator of GetKerMIT. 
 
-Yes, that is my real identicon. 
+I have the amogus identicon.
 
 https://github.com/identicons/RecursiveVisions.png
